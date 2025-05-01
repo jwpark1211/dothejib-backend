@@ -19,7 +19,6 @@
 
 ![image](https://github.com/Team-Soong-Kor-Dan-of-10th-K-Hackathon/do-the-jip/assets/81142151/926c2932-9596-486d-86a4-a983343a5f31)
 
-![image](https://github.com/Team-Soong-Kor-Dan-of-10th-K-Hackathon/do-the-jip/assets/81142151/5c3402ce-7684-4862-9cf0-c0880fc941cd)
 
 <br>
 
